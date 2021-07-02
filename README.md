@@ -1,24 +1,4 @@
-<!DOCTYPE html>
-<html>
-<head>
-<link rel="stylesheet" href="style.css">
-</head>
-<body>
 
-<header>
-   <h3>Sportive Tricks</h3>
-</header>
-
-  <nav>
-  <ul>
-    <li><a href="http://sportivetricks.github.io/home.html">Home</a></li>
-    <li><a href="http://sportivetricks.github.io/log.html">Log</a></li>
-  </ul>
-</nav>
-
-<article>   
-
-  <h2>Log</h2>  
 
 <p>February 2nd, 2019<br>
   Jackson Heights, NY <br>
