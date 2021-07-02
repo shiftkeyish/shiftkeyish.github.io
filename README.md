@@ -1,5 +1,3 @@
-
-
 <p>February 2nd, 2019<br>
   Jackson Heights, NY <br>
 Saturday, 12:10pm</p>
@@ -936,10 +934,4 @@ Afternoon</p>
 
 <p>This is the first time I've been been home where I didn't see C. My mom says she's been diagnosed with Borderline Personality Disorder, and that she just put in a notice at her job. They think she can go on disability. She doesn't want to see me. I'm wondering if I should call her, reach out, let her know someone cares, for whatever it's worth. That same person farted again.</p>
   
-  </article> 
-
-  <footer>Copyright &copy; sportivetricks </footer>
-
-</body>
-</html>
 
