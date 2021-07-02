@@ -1,3 +1,9 @@
+July 1st, 2021
+Lee's Summit, Missouri
+Thursday, 09:39pm
+
+Was my last post really in February of 2019? Seems hard to believe, a full year before the COVID-19 pandemic sent the world spiralling. I wrote by hand in random journals. Not much. Not enough. Do my thoughts and feelings on living through a pandemic matter? Not much. Not enough. 
+
 <p>February 2nd, 2019<br>
   Jackson Heights, NY <br>
 Saturday, 12:10pm</p>
@@ -13,7 +19,7 @@ Saturday, 12:10pm</p>
 	Jackson Heights, NY<br>
 Wednesday, 7:17am</p>
 
-<p>The cold is biting, as they say, and it does feel personal. An attack. They say one braves a cold, and I braved it for the half mile yesterday afternoon to the UPS loading dock by the West Side Highway. Inside, large people, two men and two women. The women were African-American, security guards, they took no interest in me. The men were white, loud with long, thick legs and straight backs, bundled in poly-filled coats the color of a dirty floor. One took my postcard, the one that said a box couldn't be delivered because there wasn't a Suite number, and disappeared behind doors that swung. The other said goodbye and swaggered into the cold, bright day as if it was a good one to die.</p>
+<p>The cold is biting, as they say, and it does feel personal. An attack. They say one braves a cold, and I braved it for the half mile yesterday afternoon to the UPS loading dock by the West Side Highway. Inside are large people, two men and two women. The women were African-American, security guards, they took no interest in me. The men were white, loud with long, thick legs and straight backs, bundled in poly-filled coats the color of a dirty floor. One took my postcard, the one that said a box couldn't be delivered because there wasn't a Suite number, and disappeared behind doors that swung. The other said goodbye and swaggered into the cold, bright day as if it was a good one to die.</p>
 
 <p>The women and I filled the small, musty waiting area with our silence. In the corner, an old cassette-player boombox rusted on small table, on the floor around it, half a dozen blooming, potted, poinsettas.</p>
 
