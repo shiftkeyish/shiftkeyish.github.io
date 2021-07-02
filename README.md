@@ -4,6 +4,7 @@ Thursday, 09:39pm
 
 Was my last post really in February of 2019? Seems hard to believe, a full year before the COVID-19 pandemic sent the world spiralling. I wrote by hand in random journals. Not much. Not enough. Do my thoughts and feelings on living through a pandemic matter? Not much. Not enough. 
 
+<html>
 <p>February 2nd, 2019<br>
   Jackson Heights, NY <br>
 Saturday, 12:10pm</p>
