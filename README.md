@@ -1,9 +1,21 @@
-July 1st, 2021
-Lee's Summit, Missouri
+July 1st, 2021<br>
+Lee's Summit, Missouri<br>
 Thursday, 09:39pm
 
-Was my last post really in February of 2019? Seems hard to believe, a full year before the COVID-19 pandemic sent the world spiralling. I wrote by hand in random journals. Not much. Not enough. Do my thoughts and feelings on living through a pandemic matter? Not much. Not enough. 
+Was my last post really in February of 2019? 
 
+Seems hard to believe, a full year before the COVID-19 pandemic sent the world spiralling. 
+
+In the past year and a half, I wrote by hand in random journals. Not much. Not enough. 
+
+Do my thoughts and feelings on living through a pandemic matter? Not much. Not enough. 
+
+Now, I'm at my parent's house in Lee's Summit. They are moving from one apartment in their complex on Tudor Road to another, one on the ground floor, so there are no stairs to take. I, daughter, am here to run up and down the stairs leading to their old apartment carrying armfuls of clothes and blankets and plastic bins full of junk from high school. The air between us is different. The insurrection on January 6th finally prompted me to do what I had been meaning to do since Trump entered office in 2016: talk to my parents every week. It was a simple text to my mother and a simple eager response from her. Since then, we've talked almost every Sunday evening. 
+
+We rarely talk politics, though it leaks in when the conversation turns to masks mandates and vaccinations. My mom was able to rationalize getting a vaccine because she believes she won't be able to get on a plane without one. a plane she would need to get on to get to me in case of emergencies. See how it all landed on me somehow? Her motherly love triumphing over her love of America, some Christian God, and the two-gauge rifle in the closet (for the uninitiated, a compulsory vaccination is tantamount to taking our freedoms away)? 
+
+
+***
 <html>
 <p>February 2nd, 2019<br>
   Jackson Heights, NY <br>
