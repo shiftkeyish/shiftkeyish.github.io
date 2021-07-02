@@ -20,7 +20,7 @@
 
   <h2>Log</h2>  
 
-<p>February 2nd, 209<br>
+<p>February 2nd, 2019<br>
   Jackson Heights, NY <br>
 Saturday, 12:10pm</p>
 
