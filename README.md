@@ -36,11 +36,11 @@ Saturday, 12:10pm</p>
 
 <p>Our president continues to entertain us with his antics as he doesn't really know what else to do. He is a real estate mogul and a reality tv star. He knows how to build things (a wall), and antagonize his housemates (Pelosi), so this is what he does. I have nothing to say about Trump that hasn't been written over and over again in liberal think-pieces, except this: I'd rather have him in office than any other Republican that was running for president. His presidency, unintentially, has been the best thing for the liberal cause. If it was Cruz in office, we'd be twiddling our thumbs while they quietly rip the country apart. </p>
 
- *** 
+*** 
 
-<p>January 23rd, 2019<br>
+January 23rd, 2019<br>
 Jackson Heights, NY<br>
-Wednesday, 7:17am</p>
+Wednesday, 7:17am<
 
 <p>The cold is biting, as they say, and it does feel personal. An attack. They say one braves a cold, and I braved it for the half mile yesterday afternoon to the UPS loading dock by the West Side Highway. Inside are large people, two men and two women. The women were African-American, security guards, they took no interest in me. The men were white, loud with long, thick legs and straight backs, bundled in poly-filled coats the color of a dirty floor. One took my postcard, the one that said a box couldn't be delivered because there wasn't a Suite number, and disappeared behind doors that swung. The other said goodbye and swaggered into the cold, bright day as if it was a good one to die.</p>
 
