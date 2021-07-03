@@ -1,3 +1,14 @@
+July 3rd, 2021<br>
+Lee's Summit, MO<br>
+Saturday, 5:25pm
+
+All day yesterday, we moved. Up and down the cement stairs of unit 615, shoving plastic bins into Mom's metallic blue SUV. I slid once and the record player went flying. The legs broke off but it seems otherwise in tact. 
+
+I found my old things, art and journals from high school neatly organized into binders, the famous "Russian" coat, communist red with black embroidery and faux-fur trim. It was my greatest thrift store find. I wore it in my senior photo. I wore it again just now and it fit like a glove, only the red velour has worn away to a dusty orange in places, and the leather straps have broken off so that it cannot be closed, the shoulder seams have ripped, but perhaps there are people who can fix these things. 
+
+SP and I are drifting, I can feel it. It is a familiar feeling. Since C came along, I have felt slowly but surely replaced, like parts of a bicycle over time. 
+
+***
 July 1st, 2021<br>
 Lee's Summit, Missouri<br>
 Thursday, 09:39pm
@@ -25,8 +36,7 @@ Saturday, 12:10pm</p>
 
 <p>Our president continues to entertain us with his antics as he doesn't really know what else to do. He is a real estate mogul and a reality tv star. He knows how to build things (a wall), and antagonize his housemates (Pelosi), so this is what he does. I have nothing to say about Trump that hasn't been written over and over again in liberal think-pieces, except this: I'd rather have him in office than any other Republican that was running for president. His presidency, unintentially, has been the best thing for the liberal cause. If it was Cruz in office, we'd be twiddling our thumbs while they quietly rip the country apart. </p>
 
-
- <hr> 
+ *** 
 
 <p>January 23rd, 2019<br>
 	Jackson Heights, NY<br>
