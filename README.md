@@ -1,4 +1,12 @@
 
+April 14th, 2022<br>
+Jackson Heights, NY<br>
+Thursday, 9pm. 
+
+Where does it all end with the fire of ice...that is not me, that is GOT. A friend in NOLA, another in Portland, another in DC, all on medication to delight me. The weather turned and turned again, sunlight all right, but I exit the white and glass automated doors of Bath Bad and Beyond into a world of gray and ass, rain sputtering like children are rolling their toy cars over the hose. Remember that one time when you arrived at the place wearing the thing with your eyes wide as rain and the thing billowing and green and you are braless and quiet and the music thumps and your heart thumps and you know you are walking on a ledge that separates your self hate from your self make but you chose to fall on the side that you know, and your green dress feels like a dishrag and your big eyes shrink into dark pangs and the hairspray in your hair lifts in a halo and becomes a ghost. 
+
+***
+
 April 13th, 2022<br>
 New York, NY <br>
 Wednesday, Noon
