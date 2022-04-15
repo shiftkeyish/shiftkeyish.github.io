@@ -1,3 +1,10 @@
+
+April 13th, 2022<br>
+New York, NY <br>
+Wednesday, Noon
+
+I am involved, I am a fidget, I am a catastrophe in arms. Where is the glue that designs my tattoos, the liquid freight of my magistrate. How many days away does one have to be before one forgets how one is free. And if there is a mighty river, the glorious sheen of a beating liver, perhaps I’ll take a gander before I ever want to do such a thing again. This is the way of the south west fortress, the hungry papa of the loudest and most fierce, a window into the angst and hollow world of museums where the bald delight in their mustaches, oh how i would be a magpie, whatever that means to a toucan or a soup can or the laughing legs of a can-can dancer, I’m a miss and a mess, hapless and unbrave, asleep at the wheel, I feel, unfazed, held together by missing links or linked data or pink Dada or marvin and his old old old ways of paper and punk, handwritten signatures and illegal weed, glory days he says rising with sheers from the depths of his perennials.
+
 July 3rd, 2021<br>
 Lee's Summit, MO<br>
 Saturday, 5:25pm
