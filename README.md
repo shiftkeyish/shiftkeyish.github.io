@@ -1,3 +1,10 @@
+April 20th, 2022<br>
+Jackson Heights, NY<br>
+Wednesday, 4pm
+
+In my throat is a critter of a feisty size, it grips with its hardened, alien nail-toe and tickles the tonsils that were never removed. Empty bowls of dried up soup, pits rank, hair dank, Spencer's birthday, my hurt day, stomach pushed out like a something burning to say, surrounded by boxes filled with knick-knacks and non-essentials, mere memory triggers are always the first to be packed away. 
+
+***
 
 April 14th, 2022<br>
 Jackson Heights, NY<br>
