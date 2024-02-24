@@ -1,5 +1,5 @@
-February 2024, 2024
-Jackson Heights, NY
+February 2024, 2024<br>
+Jackson Heights, NY<br>
 5pm
 
 Since then, I've been writing on paper with my hands and some ink. Maybe you'll find it, maybe I'll grind it all up into paper mâche and let it hardnened into shapes you don't recognize, paint them pink as the sky last night, hardened splashes broken and split, heirlooms the dead pass on and you abandon. 
