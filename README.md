@@ -1,8 +1,16 @@
+February 2024, 2024
+Jackson Heights, NY
+5pm
+
+Since then, I've been writing on paper with my hands and some ink. Maybe you'll find it, maybe I'll grind it all up into paper mâche and let it hardnened into shapes you don't recognize, paint them pink as the sky last night, hardened splashes broken and split, heirlooms the dead pass on and you abandon. 
+
+***
+
 April 20th, 2022<br>
 Jackson Heights, NY<br>
 Wednesday, 4pm
 
-In my throat is a critter of a feisty size, it grips with its hardened, alien nail-toe and tickles the tonsils that were never removed. Empty bowls of dried up soup, pits rank, hair dank, Spencer's birthday, my hurt day, stomach pushed out like a something burning to say, surrounded by boxes filled with knick-knacks and non-essentials, mere memory triggers are always the first to be packed away. 
+In my throat is a critter of a feisty size, it grips with its hardened, alien nail-toe and tickles the tonsils that were never removed. Empty bowls of dried up soup, pits rank, hair dank, Spencer's birthday, my hurt day, stomach pushed out like a something "burning to say," surrounded by boxes filled with knick-knacks and non-essentials, mere memory triggers are always the first to be packed away. 
 
 ***
 
