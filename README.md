@@ -1,4 +1,4 @@
-February 2024, 2024<br>
+February 24, 2024<br>
 Jackson Heights, NY<br>
 Saturday, 5pm
 
